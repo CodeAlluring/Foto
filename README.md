@@ -1,1 +1,1 @@
-# Foto
+# Koto
